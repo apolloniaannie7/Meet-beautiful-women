@@ -1,0 +1,2 @@
+# Meet-beautiful-women
+I'm looking to search out a gentleman that is aware of a way to treat a girl. I am a very sweet and caring person who has been born/raised within the Middle West. I would prefer to meet a cheerful, spontaneous, fun and choleric person, somebody with a friendly temperament and hopefully common interests. My ideal match would be actuated, the successful and real person who will hold a speech communication and is intellectually curious. 
